@@ -1,0 +1,1 @@
+Current Computer Science college student seeking an internship that provides professional growth to leverage experience, continue exploring the inspiring, innovative field of the computer science industry.
